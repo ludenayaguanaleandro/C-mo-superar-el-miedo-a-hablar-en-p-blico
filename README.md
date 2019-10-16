@@ -1,1 +1,2 @@
-# C-mo-superar-el-miedo-a-hablar-en-p-blico
+# CÓMO SUPERAR EL MIEDO A HABLAR EN PÚBLICO
+El miedo a hablar en público es una forma de ansiedad frecuente. Puede variar desde un nerviosismo leve a un miedo paralizante y pánico. Muchas personas con este miedo evitan las situaciones en las que tienen que hablar en público por completo o sufren en su transcurso, con las manos y la voz temblorosas. Pero la preparación y la persistencia podrán ayudarte a superar el miedo.
